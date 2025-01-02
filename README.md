@@ -17,7 +17,5 @@ Sample Questions
 
 
 Business Insights 
-
-this Excel  project help in business growth and make new strategy for stakeholders for decision making.
-
+Presented findings to management, contributing to a projected 15% increase in sales for 2023 through targeted promotions and enhanced customer engagement strategies.
 
